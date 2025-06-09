@@ -1,5 +1,5 @@
 # Baka
-↘(ᗜᴗᗜ)↙
-→＜l＞←
- ↗／\ ↖
- fumofumo
+↘(ᗜᴗᗜ)↙<br>
+→＜l＞←<br>
+ ↗／\ ↖<br>
+ fumofumo<br>
